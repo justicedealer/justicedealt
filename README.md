@@ -48,9 +48,12 @@ DO NOT INTERACT: those d/a's / irls that are dead set on not recovering or arent
 <img src="https://i.postimg.cc/y8gcVCjq/tealdivider.jpg"/>
 </p>
 <p align="center">
-<img src="https://i.postimg.cc/rw4mzVrk/Background-Eraser-20240721-194853708-ezgif-com-crop.png"/>
+<img src="https://i.postimg.cc/sXsq7cHc/Background-Eraser-20240721-194853708-ezgif-com-resize.png"/>
 </p>
 
+<h5 align="center">
+ art credit ilovezuka566672 and sodastuff on twitter
+</h5>
 
 <h3 align="center">
 <img src="https://i.postimg.cc/59DfhcXQ/brokerbottom.png"/>
