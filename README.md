@@ -15,8 +15,6 @@
 <img src="https://i.postimg.cc/7hQnh7LH/Untitled913-20240721193506-2.png"/>
 </p>
   
-
-    
 <h5 align="center">
 hii ^_^ my names broker but u can also call me fifer and/or fleur
 
