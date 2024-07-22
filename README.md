@@ -1,9 +1,13 @@
 
- 
+
+   <h3 align="center">
+<img src="https://komarev.com/ghpvc/?username=justicedealer&label=profile+views&color=3594A6"/>
+    </h3>
     
 <h3 align="center">
 <img src="https://i.postimg.cc/D0pnZDgH/brokertop.png"/>
     </h3>
+     
 
   <p align="center">
 <img src="https://i.postimg.cc/hvZQB27P/lv-0-20240721192711-ezgif-com-effects.gif"/>
@@ -12,7 +16,8 @@
 <p align="center">
 <img src="graphichere"/>
 </p>
-
+  
+  
 <h5 align="center">
 hii ^_^ my names broker but u can also call me fifer and/or fleur
 
@@ -53,6 +58,7 @@ DO NOT INTERACT: those d/a's / irls that are dead set on not recovering or arent
 
 <h5 align="center">
  art credit ilovezuka566672 and sodastuff on twitter
+  credits to endearr 
 </h5>
 
 <h3 align="center">
