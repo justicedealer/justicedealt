@@ -12,7 +12,7 @@
     </p>
    
 <p align="center">
-<img src="graphichere"/>
+<img src="https://i.postimg.cc/wj59dkMd/Untitled913-20240721193506-1.png"/>
 </p>
   
 
