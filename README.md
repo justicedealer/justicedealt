@@ -20,7 +20,7 @@
 <h5 align="center">
 [✙]𓈒ᴗ)　BROKER, FIFER OR FLEUR 　𓉸𓉸 　IT / NO PRNS (ANY OK)　︵.
 
-♰𓈒 )　enfp t 4w3 × × im a minor ( friends ask 4 age )　𓎟𓎟𓍢
+♰𓈒 )　enfp / entp (50/50) t 4w3 × × minor ( friends ask 4 age )　𓎟𓎟𓍢
 </h5>
 
 <p align="center">
