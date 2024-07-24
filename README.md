@@ -31,7 +31,7 @@ BEFORE YOU INTERACT: mentally ill . adhd & other unlisted things . this can & wi
 
 i can come off as insensitive &/or annoying . just straight up tell me , im a reasonable person
 
-i barely use or need tonetags unless asked 　ᛝᛝ 　heavily attached 2 broker
+i barely use or need tonetags unless asked 　ᛝᛝ 　im a heavy multishipper + rarepair-er
 
 happily [taken](https://github.com/endearr) ♥︎♥︎!! i wont mention it much , but just keep that in mind
 </h5>
@@ -48,6 +48,7 @@ DO NOT INTERACT: those d/a's / irls that are dead set on not recovering or arent
 helluva boss/hazbin hotel likers 　ᛝᛝ 　u think legal adult age gaps r weird . annoying
 
  dni people under 13 . adults dont be weird, & i block freely otherwise
+
 </h5>
 
 <p align="center">
