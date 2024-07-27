@@ -27,13 +27,12 @@
 <img src="https://i.postimg.cc/MTMpBzcx/fancybrokermiddle.png"/>
  </p>
  <h5 align="center">
-BEFORE YOU INTERACT: mentally ill . adhd & other unlisted things . this can & will effect convos
+i dont care if you take inspo from my ponies, just dont take **heavy** inspo or straight up copy
 
-i can come off as insensitive &/or annoying . just straight up tell me , im a reasonable person
+I LOVE!! interactions!! i might not always answer but feel free 2 whisper . i dont bite !!
+     
+look at rentry 4 more info about me 　ᛝᛝ 　im happily [taken](https://github.com/endearr) ♥︎♥︎!!
 
-i barely use or need tonetags unless asked 　ᛝᛝ 　im a heavy multishipper + rarepair-er
-
-happily [taken](https://github.com/endearr) ♥︎♥︎!! i wont mention it much , but just keep that in mind
 </h5>
 
 <p align="center">
@@ -41,13 +40,13 @@ happily [taken](https://github.com/endearr) ♥︎♥︎!! i wont mention it muc
 </p>
 
 <h5 align="center">
-DO NOT INTERACT: those d/a's / irls that are dead set on not recovering or arent trying to recover
+DO NOT INTERACT: i block freely . the rest of my dni is mostly common sense
 
- basic dni criteria otherwise. dni darkship/proship & zionists we should kill you with hammers
+ basic dni criteria 　ᛝᛝ 　darkship/proship & pro israel/neutral stay 100 feet away. gross
 
-helluva boss/hazbin hotel likers 　ᛝᛝ 　u think legal adult age gaps r weird . annoying
+helluva boss/hazbin hotel likers 　ᛝᛝ 　anti recovery d/a's
 
- dni people under 13 . adults dont be weird, & i block freely otherwise
+phighting, regretevator & pjsk fans i am watching you . dont be stupid
 
 </h5>
 
