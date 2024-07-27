@@ -33,6 +33,8 @@ I LOVE!! interactions!! i might not always answer but feel free 2 whisper . i do
      
 look at rentry 4 more info about me 　ᛝᛝ 　im happily [taken](https://github.com/endearr) ♥︎♥︎!!
 
+i dont use tonetags unless asked and prefer for them to not be used unless i ask 4 them
+
 </h5>
 
 <p align="center">
